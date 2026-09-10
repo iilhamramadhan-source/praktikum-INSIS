@@ -1,1 +1,1 @@
-aku suka matkul insis setiap hari mau matkul insis
+aku suka insis dan selalu masuk matkul insis
